@@ -185,7 +185,3 @@ youtube我推薦上面的日本史的作者的頻道，[這是他的網站][8]�
 [7]: https://www.amazon.co.jp/-/en/%E3%83%89%E3%83%8A%E3%83%AB%E3%83%89%E3%83%BB%E3%82%AD%E3%83%BC%E3%83%B3-ebook/dp/B08CZ7BMR3
 [8]: https://mundisensei.com/lesson-videos-japan/
 [9]: https://www.amazon.co.jp/%E5%9F%BA%E7%A4%8E%E3%81%8B%E3%82%89%E3%82%8F%E3%81%8B%E3%82%8B-%E8%AB%96%E6%96%87%E3%81%AE%E6%9B%B8%E3%81%8D%E6%96%B9-%E8%AC%9B%E8%AB%87%E7%A4%BE%E7%8F%BE%E4%BB%A3%E6%96%B0%E6%9B%B8-%E5%B0%8F%E7%86%8A%E8%8B%B1%E4%BA%8C-ebook/dp/B09ZB8KZT2
-![](https://i.imgur.com/r7J1EOV.png)
-
-
-
